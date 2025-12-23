@@ -1,3 +1,3 @@
 # RapidBites
-we get your order to your doorstep without giving you a headache
+we get your order to your doorstep without giving you a headache,
 fastest delivery is our ambition
